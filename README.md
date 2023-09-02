@@ -28,3 +28,4 @@ TA Office hour Zoom: https://odu.zoom.us/j/99076096435
 
 Course Schedule
 
+See the syllabus PDF file. 
